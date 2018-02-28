@@ -39,17 +39,17 @@ Hagamos una lista de listas
 *¿Te refieres de playlists de Spotify...?*
 No..., pero ya que se te ha ocurrido. Está bien.
 
-1. Stay Gold
+1. Stay Gold  
 Es una playlist creada por Carlota hará unos cuantos meses en la que hay un mix
 un tanto extraño de canciones, que pueden ir de Stevie Wonder hasta Paul Anka
 o incluso The Righteous Brothers.
 
-2. Deep Sea
+2. Deep Sea  
 Vale, esta playlist ya es más reciente con canciones que tengo últimamente en
 la cabeza como............ Dust it off de The Dø. Pero ya no os diré más
 canciones.
 
-3. Crazy
+3. Crazy  
 Eeeemmmm, esto es básicamente The Velvet Underground, Lorde y Patsy Cline.
 
 Obviamente tengo muchas más playlists, pero solo quería poner un ejemplo.
