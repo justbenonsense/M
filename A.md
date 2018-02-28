@@ -1,6 +1,6 @@
 # JUSTBENONSENSE
 
-<center>![minipic](Descargas/IMG-1016.JPG)
+<center>![foto1](Descargas/IMG-1016.JPG)
 
 ## INTRODUCCIÓN INTRODUCTORIA
 
@@ -30,7 +30,9 @@ ver la luz del sol)
 
 _Quedas avisado pues_
 
-Vale, vale. Pero ahora probemos más cosas.
+### EMPIEZA YA
+
+Vale, vale. Ahora probemos más cosas.
 
 Venga Carlota haz una lista de algo. ¿Pero de qué? Si es que ahora mismo no se
 me ocurre nada. Bueno venga vale.
