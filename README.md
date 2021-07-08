@@ -2,4 +2,4 @@
 
 Seguimos modificando el repositorio...
 
-Gracias por leerme ::heart::
+Gracias por leerme :heart:
